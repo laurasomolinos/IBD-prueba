@@ -1,3 +1,2 @@
 # IBD-prueba
-hola buenos dias coleguis
-jsdjfhiusdhfushifua 
+hola buenos dias colegui 
